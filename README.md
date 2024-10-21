@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @TANUJ ...
 - 👀 I’m interested in CODING,EDITING,GRAPHICS,3-D MODELING,VIDEO-EDITING
 - 🌱 I’m currently learning 3-D MODELING
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me CALL ON [7588666576}
+- 💞️ I’m looking to collaborate on 3D MODELING & RENDERING
+- 📫 How to reach me > CALL ON [7588666576}
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I AM 15YEAR OLD
 
